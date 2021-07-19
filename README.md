@@ -11,7 +11,7 @@ Hello! My name is Roy Ng,
   
 - 📫 Reach me @ <a href="https://t.me/Banila97">Telegram</a> & <a href="mailto:royng34@gmail.com">Email</a>
 
-- [Personal Website 💻✒️📄🌟](https://banila48.github.io/Bani/)
+- [Personal Website 💻✒️📄🌟](https://royngjd.me/)
 
 - ⚡ Fun fact: I love late night thrills and chills 👻
 
